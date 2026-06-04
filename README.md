@@ -1,0 +1,2 @@
+# Belajar-bareng-aing
+YANG BELAJAR NANTI DI PAT² SAMA MOMMY BLITZZ
